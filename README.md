@@ -1,0 +1,1 @@
+# sripickleshop-assets
